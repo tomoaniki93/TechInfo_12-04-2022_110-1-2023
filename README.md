@@ -5,3 +5,5 @@ Cours technicien Informatique du 12 Avril 2022 au 11 janvier 2023
 Planning
 https://drive.google.com/file/d/1dpoX9HS-Ei-3THovQIrzsW56FiGePc4b/view
 
+Joboscope Technicien Informatique
+https://podcast.ausha.co/le-joboscope/technicien-ne-informatique
